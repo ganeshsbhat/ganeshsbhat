@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ganeshsbhat
 - 👀 Things I love doing - Coding, Filmmaking, Acting
-- 🌱 Coffee addict!
+- 🌱 Tea connoisseur!
 - 📫 Reach me out @ https://www.linkedin.com/in/ganeshsbhat1990
 
 <!---
